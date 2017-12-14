@@ -1,1 +1,1 @@
-# Projekt_STD
+Daniel Rosłoń
